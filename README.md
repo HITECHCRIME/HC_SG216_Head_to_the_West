@@ -48,6 +48,11 @@ I've seen better days
 
 https://www.youtube.com/watch?v=mrfTv0OVocw
 
+
+fuck that
+fuck what they say
+i tell 
+
 ```
 
 ## Lore Notes
